@@ -1,0 +1,1 @@
+# firat-niversitesiyaz-l-m-m-hendisli-i-oryantasyon-final-devi
